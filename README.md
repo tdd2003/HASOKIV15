@@ -1,2 +1,0 @@
-# HASOKIV15
-Hasoki
